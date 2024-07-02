@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Kathan Jain
+- 🌱 I’m currently learning Verification.
+- 📫 Can reach me on: kathan.jain@morphing.in | +91 9680330020. 
+- 😄 Pronouns: He/Him.
+- 👀 Interests: Cinematography, Video Editing.
